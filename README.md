@@ -1,1 +1,0 @@
-# SSD-LAB-ACTIVITY-2
